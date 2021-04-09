@@ -1,5 +1,5 @@
 <<<<<<< HEAD
-Soy iñaki tengo 23 años y juego en el UT SERVIAM
+Soy iñaki tengo 23 años y juego en el UT SERVIAM y toy despegado
 
 Juego de delantero y me lesiono todo el tiempo
 =======
