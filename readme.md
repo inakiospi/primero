@@ -6,6 +6,7 @@
 - Repasaremos todos los fichajes
 - Compartiremos las mejores jugadas
 -Experimento 1
+-Experimento 2
 
 
 Con cariño para todos los pibes! :tw-1f3c6: :tw-1f37b:
