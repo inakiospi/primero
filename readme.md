@@ -2,14 +2,14 @@
 
 
 - En este blog se relataran los emocionantes partidos del UT
-- Tendremos todas las estadísticas actualizadas
+- Tendremos todas las estadísticas actualizadas todos los días
 - Repasaremos todos los fichajes
-- Compartiremos las mejores jugadas
+- Compartiremos las mejores jugadas y golazos
 -Experimento 1
 -Experimento 2
 -Se viene el cherry pick wacho
 -Pick sale delante
-
+ 
 
 Con cariño para todos los pibes! :black_joker:
 
